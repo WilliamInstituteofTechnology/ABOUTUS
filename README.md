@@ -14,15 +14,18 @@ Benefits of WilliamInstitiuteofTechnology
 =========================================
 
 
+
 a) Professionals  will be  certified   as   writ programming language  professionals.
 
 
 b)  Professionals   will get right  software  to  work  with  numerous  exercises, InterView FAqs,
 
 
-MOCK tests,etc.
+MOCK tests,etc. Live  Project  will   be  at  end of  finishing  of  the  course  material.
 
 
 
-c)  Provides   Online  course   material .
+c)  Provides   Online  course   material  with  Professional  fees.
+
+
 
